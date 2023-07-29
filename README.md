@@ -1,4 +1,4 @@
-#Hi👋🏻 I'm Manik Bansal
+Hi👋🏻 I'm Manik Bansal
 <br>
 
 # 💫 About Me:
